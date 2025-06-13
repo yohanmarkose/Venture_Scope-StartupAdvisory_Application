@@ -1,0 +1,1 @@
+# Venture_Scope-StartupAdvisory_Application
